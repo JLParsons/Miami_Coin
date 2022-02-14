@@ -1,4 +1,4 @@
-Miami Token 
+Miami Coin
 
 Mission: Local Business
 
